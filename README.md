@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Vericidious
+- 👀 I’m interested in Minecraft
+- 🌱 I’m currently learning how to make a server
+- 📫 How to reach me discord (Vericidious is my user)
+- 😄 Pronouns: He/him/Small Lepracorn
+- ⚡ Fun fact: I am short
